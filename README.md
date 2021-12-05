@@ -1,2 +1,3 @@
 # https-github.com-topics-washi
 An example of a cottage industry that can become a large industry is found in Japan from plant raw materials such as mulberry trees and from making paper pulp
+These existing items and projects have become industrial paper, office supplies stickers and wall-mounted wallpaper in Japan and are posted on Amazon even, I give an example of the subject because this production material is a product that can be called an ancient craft, I myself chose the preference of articles from years 76 and 92. Come on, are there other sources to develop the pulp business and become other innovative materials? from the source Awake 1976 and Awake 1992
